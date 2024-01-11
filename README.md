@@ -1,2 +1,2 @@
-# discussionwk1.0
+# discussionwk1
 <h1>Georgina Broyles</h1>
